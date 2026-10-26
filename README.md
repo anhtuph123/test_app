@@ -1,1 +1,1 @@
-Iron man
+Lấy viên tâm trí
